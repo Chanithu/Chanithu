@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Chanithu Thathsara
-- 👀 I’m interested in Maths&Tech
+- 👋 Hi, I’m @Chanithu Thathsara Edirisooriya
+- 👀 I’m interested in Maths & Tech
 - 🌱 I’m currently learning in Gd 7
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
